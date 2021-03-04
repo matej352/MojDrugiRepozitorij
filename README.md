@@ -1,0 +1,2 @@
+# MojDrugiRepozitorij
+vjezbanje
